@@ -1,1 +1,21 @@
 # class-codes
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+bogos binted
